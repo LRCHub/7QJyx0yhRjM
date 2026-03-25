@@ -1,0 +1,64 @@
+# 土屋アンナ – rose
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+When I was darkness at that time
+震えてる唇
+部屋の片隅でI cry
+もがけばもがくほど
+突き刺さるこの傷
+破られた約束hurt me
+Nobody can save me
+神様ひとつだけ
+止めて裂くようなmy love
+I need your love.
+I'm a broken rose.
+舞散る悲しみyour song
+居場所無い孤独なmy life
+I need your love.
+I'm a broken rose.
+Oh baby, help me from frozen
+pain
+with your smile, your eyes, and
+sing me, just for me
+I wanna need your love...
+I'm a broken rose
+I wanna need your love...
+When you are with me at that
+time
+貴方の影を追いかけて
+裸足で駆け抜けて stop me
+閉ざせば閉ざすほど
+もつれてくこの愛
+緩やかにやさしく kiss me
+Nobody can save me
+凍える薔薇のように
+やさしく眠りたい my tears
+I need your love.
+I'm a broken rose.
+枯れ堕ちる悲しみ my soul
+崩れてく孤独な little girl
+I need your love.
+I'm a broken rose.
+Oh baby, help me from frozen
+pain
+with your smile, your eyes, and
+sing me, just for me
+I wanna need your love...
+I'm a broken rose
+I wanna need your love...
+I need your love.
+I'm a broken rose.
+舞散る悲しみyour song
+居場所無い孤独な my life
+I need your love.
+I'm a broken rose.
+Oh baby, help me from frozen
+pain
+with your smile, your eyes, and
+sing me, just for me
+I wanna need your love...
+I was a broken rose
+I wanna need your love...
+```
